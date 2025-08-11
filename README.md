@@ -7,5 +7,5 @@ Here are some ideas to get you started:
 🥇
 - 🔭 o pareles midia 
 - 👯 I’m looking to collaborate on ...
-- 🤔 quero ir embora
+- 🤔 o nicolas pe pareles pensante...
 - 💬 
